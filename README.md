@@ -8,4 +8,7 @@ zx also
 
 zichar is les
 
+compareing see who win
+
 hi x
+
