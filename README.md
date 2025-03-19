@@ -6,4 +6,4 @@ Rick is gay
 
 zx also
 
-zili is les
+zichar is les
