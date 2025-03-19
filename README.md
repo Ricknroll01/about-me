@@ -7,3 +7,5 @@ Rick is gay
 zx also
 
 zichar is les
+
+compareing see who win
